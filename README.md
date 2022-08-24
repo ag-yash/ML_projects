@@ -1,1 +1,1 @@
-Witness me going "deep" in the domain of ML/DL.👋
+Witness me go "deep" in the domain of ML/DL.👋
